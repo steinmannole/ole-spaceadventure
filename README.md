@@ -1,5 +1,5 @@
 # ole-spaceadventure
 Inspiriert von YT@FoX DeN <br>
-
-
-Bilder werden noch hinzugefügt
+<br>
+<br>
+<br>Noch Probleme mit den Bilern!
